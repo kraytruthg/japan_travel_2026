@@ -30,52 +30,54 @@
   - 攜帶：防蚊、防曬、水壺、小扇子
   - 攤位美食推薦：章魚燒、大阪燒、刨冰
 
-![天神祭夜景](https://gojapan.com.tw/wp-content/uploads/2023/06/osakatemmangu-1-1200x889.jpg)
+![天神祭夜景](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Tenjin_Matsuri_01.jpg/640px-Tenjin_Matsuri_01.jpg)
 
 ---
 
-## 🗓 Day 2 - 7/26（六）大阪港灣親子樂：海遊館 + 樂高樂園 🐧🧱
+
+## 🗓 Day 2 - 7/26（六）海之奇遇記：海遊館 + LEGO + 摩天輪 + 梅田夜景 🐠🧱🎡🌃
 
 ### 🐠 上午：海遊館（世界級水族館）
 - 📍 [Google Maps - 海遊館](https://maps.app.goo.gl/Wp1ZpKhLFZHEfZEq7)
-- **介紹**：
-  - 高達 8 層樓的螺旋型水族館，主題為「環太平洋生態系」
-  - 有鯨鯊、魟魚、企鵝、海豹等
-  - 特別設有「可愛小動物區」專為兒童設計
-- **特色推薦**：
-  - 巨型太平洋水槽
-  - 小朋友最愛：海豹 & 水母觀察
-- 🍼 設備：冷氣、哺乳室、嬰兒車友善
+- 🧑‍🏫 導遊式介紹：
+  >「我們今天要走進一座像『海底世界迷宮』的大水族館，裡面有世界上最大的魚——鯨鯊，還有企鵝、海豹、水母，非常壯觀！」
 
-![海遊館鯨鯊](https://image1.gamme.com.tw/news2/2017/51/49/qZqaoZ6dk56dqaQ.jpg)
-
-### 🍽 午餐：天保山市場美食街
-- 📍 [Google Maps - 天保山商場](https://maps.app.goo.gl/M9NzVHYZHPWFSdKH6)
-- **推薦美食**：
-  - 章魚燒（多種口味）
-  - 豬排咖哩飯
-  - 兒童漢堡餐、可麗餅
-
-### 🧱 下午：LEGOLAND Discovery Center Osaka
-- 📍 [Google Maps](https://maps.app.goo.gl/8TCRUZzqgwN5aWBz6)
-- **介紹**：
-  - 適合 3-10 歲兒童，約 300 萬顆積木的體驗館
-  - 室內冷氣，設有賽車道、Yoshi 騎乘、4D 電影等
-  - 家長不得單獨入場，須有小孩陪同
-
-### 🌆 傍晚：心齋橋購物 → 道頓堀拍照
-- 📍 [Google Maps - 心齋橋商店街](https://maps.app.goo.gl/C8GU3z12BBfrmtjt5)
-- ✅ 景點：
-  - 固力果霓虹燈合影
-  - 唐吉訶德玩具雜貨
-- 🍽 晚餐推薦：
-  - 千房大阪燒
-  - くら壽司（兒童壽司扭蛋）
-  - 金龍拉麵 or 蓬萊551豬肉包
+- ✅ 特色亮點：
+  - 太平洋水槽、環頸海豹、可愛動物專區
+  - 室內空調涼爽、親子友善設施完善
 
 ---
 
+### 🍽 午餐：天保山市場美食街
+- 📍 [Google Maps - 天保山商場](https://maps.app.goo.gl/M9NzVHYZHPWFSdKH6)
+- 推薦：章魚燒、炸豬排咖哩、烏龍麵、兒童定食
 
+---
+
+### 🧱 下午：LEGOLAND Discovery Center Osaka
+- 📍 [Google Maps](https://maps.app.goo.gl/8TCRUZzqgwN5aWBz6)
+- 🧑‍🏫 導覽建議：
+  >「超過 300 萬塊積木拼成的大阪城、瑪利歐賽車與4D 電影，這裡是小小樂高迷的天堂！」
+
+- ✅ 推薦體驗：樂高城堡射擊車、迷你大阪城、積木創作區、樂高朋友娃娃家
+
+---
+
+### 🎡 下午延伸：天保山摩天輪 & 港區草地奔跑
+- 📍 [Google Maps - 摩天輪](https://maps.app.goo.gl/Ns5UBeK3yiy68g9P7)
+- 傍晚乘坐觀景摩天輪、欣賞海景夕陽
+
+---
+
+### 🌃 晚上：梅田夜景 @ 空中庭園展望台
+- 📍 [Google Maps](https://maps.app.goo.gl/xJKVo8EBYxQ6HqtG6)
+- 🧑‍🏫 給孩子的解說：
+  >「我們要搭上會發光的透明電梯，到超高的天台去看夜景，整個大阪的燈就像星星一樣點在地上呢！」
+
+- ✅ 建議時間：19:00–20:30  
+- 🎫 門票：大人 ¥1,500、兒童 ¥700（3歲以下免費）
+
+---
 ## 🗓 Day 3 - 7/27（日）親子大滿足日：兒童樂園 + 港區摩天輪 🧸🎡
 
 ### 📦 上午：退房 → 寄放行李
@@ -95,7 +97,7 @@
   - 冷氣舒適、家長可休息
 - 🎫 門票：大人 ¥1,400、小孩 ¥800（4歲以下免費）
 
-![Kids Plaza Osaka](https://osaka-info.jp/spot/images/015b447e83fded247043c2a621b9f08657db1503.jpg)
+![Kids Plaza Osaka](https://upload.wikimedia.org/wikipedia/commons/7/7a/Kids_Plaza_Osaka_01.jpg)
 
 ---
 
@@ -117,7 +119,7 @@
   - 附近海濱公園草地適合奔跑、吹風
   - 可遠眺海遊館與港灣船隻
 
-![天保山摩天輪](https://rimage.gnst.jp/livejapan.com/public/article/detail/a/20/00/a2000782/img/basic/a2000782_main.jpg?20230426114532&q=80)
+![天保山摩天輪](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Tempozan_Ferris_Wheel_Osaka01s5s3200.jpg/640px-Tempozan_Ferris_Wheel_Osaka01s5s3200.jpg)
 
 ---
 
@@ -147,7 +149,7 @@
   - 餵食時家長陪同，避免孩子被鹿撞倒
   - 建議上午造訪，天氣較涼、鹿也較活躍
 
-![奈良梅花鹿](https://static.gltjp.com/glt/data/article/21000/20424/20230918_150336_ae46c284_w1920.webp)
+![奈良梅花鹿](https://upload.wikimedia.org/wikipedia/commons/5/5e/Nara_Park_Deer.jpg)
 
 ---
 
@@ -180,36 +182,37 @@
 
 ---
 
-## 🗓 Day 5 - 7/29（二）道頓堀採買 + 飛機返家 🎁🛫
 
-### 🧳 上午：退房、寄放行李
-- Check-out 飯店，行李可寄放至中午前
+## 🗓 Day 5 - 7/29（二）療癒收尾日：貓頭鷹咖啡 + 採買 + 回程🦉🎁🛫
 
----
-
-### 🛍 上午自由活動：心齋橋・道頓堀採買
-- 📍 [Google Maps - 道頓堀](https://maps.app.goo.gl/DYQTRyoGb7mJmJ3m6)
-- 推薦地點：
-  - 唐吉訶德（玩具、點心）
-  - 格力高商店（大阪限定POCKY）
-  - 松本清（藥妝補貨）
+### 🧳 上午：退房 & 行李寄放
+- 於 Crystal Exe Nipponbashi 辦理退房後寄放行李
 
 ---
 
-### 🍽 午餐建議：
-- Komeda Coffee（日式輕食早餐）
-- Gram厚鬆餅 or 摩斯漢堡（適合孩子口味）
+### 🦉 上午：Osaka Owl Family Cafe（貓頭鷹咖啡館）
+- 📍 [Google Maps](https://maps.app.goo.gl/PwzCkDfpPd97d6gPA)
+- 🧑‍🏫 導覽介紹：
+  >「今天我們要去和真正的貓頭鷹做朋友喔！你可以摸牠們的頭、跟牠合照，看看哪一隻最像哈利波特的『嘿美』！」
+
+- ✅ 體驗建議：預約制，建議選上午時段，避開擁擠
+- 體驗時間：約 45 分鐘～1 小時
 
 ---
 
-### 🚄 前往機場（建議 12:30 左右出發）
-- 搭乘南海 Rapit 特急 → 關西機場（約 38 分）
-- 📍 [南海難波站地圖](https://maps.app.goo.gl/n8xz1CV2WLL2FYdP6)
+### 🛍 採買時間：心齋橋・道頓堀
+- 唐吉訶德、藥妝、玩具扭蛋、餅乾伴手禮
 
 ---
 
-### ✈ 回程航班：15:35 樂桃 MM027 → 桃園
-- 建議於 14:00 前完成報到安檢
-- 抵達後可在機場免稅店最後採購伴手禮
+### 🍽 午餐建議（擇一）：
+- Komeda 咖啡早午餐
+- Gram 厚鬆餅 or 蓬萊551 豬肉包
+
+---
+
+### 🚄 準備返回關西機場
+- 12:30：從飯店出發，南海 Rapit 特急直達機場
+- 15:35：樂桃航班返台
 
 ---
